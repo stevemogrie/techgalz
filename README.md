@@ -1,2 +1,2 @@
-# techgalz
+www. techgalz
 its atechgroup
